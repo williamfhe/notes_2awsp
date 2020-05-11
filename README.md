@@ -1,0 +1,1 @@
+Notes sur le contenu du cours de 2AWSP.
